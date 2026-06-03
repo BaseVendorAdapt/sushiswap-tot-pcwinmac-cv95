@@ -1,4 +1,4 @@
-# 
+# Profesional sushiswap trading bot complementos para Mac OS | Instantáneo sushiswap trading bot complementos para PC Windows. Con seguimiento de pérdida impermanente y señales de reversión — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
